@@ -1,6 +1,6 @@
 # Valdir Junior Petrarca De lima 
-### E-mail:juniorpetrarca04012gmail.com
-### WhatsApp:14982208744
+### E-mail:juniorpetrarca0401@gmail.com
+### WhatsApp:14996348744
 ---
 ## Objetivo
 em busca do meu aprendizado na area de tecnologia em analise e desenvolvimento de sistemas 
@@ -8,7 +8,7 @@ em busca do meu aprendizado na area de tecnologia em analise e desenvolvimento d
 ---
 
 # Experiência
-## assitente de cartorio - setor de protesto 
+## Escrevente - setor de protesto 
 
 ---
 
